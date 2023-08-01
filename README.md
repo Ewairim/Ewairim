@@ -6,7 +6,7 @@
 - 🤔 I’m looking for help with 🤷‍♀️
 - 💬 Ask me about anything involving coding and tech 
 - 📫 How to reach me: confidential😂😂
-- 😄 Pronouns: Mrs for you all
+- 😄 Pronouns: Miss
 - ⚡ Fun fact: I think I am antisocial 🤦‍♀️
 
 ## 🌐 Socials:
